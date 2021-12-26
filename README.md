@@ -2,7 +2,7 @@
 - 👀 I’m interested in Administration
 - 🌱 I’m currently learning basics
 - 💞️ I’m looking to collaborate on new projects
-- 📫 To reach me call 7448331606
+- 📫 To reach me e-mail dolly.sireesha@gmail.com
 
 <!---
 KosarajuSireesha/KosarajuSireesha is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
